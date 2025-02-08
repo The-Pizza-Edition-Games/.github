@@ -4,7 +4,7 @@
 
 Are you a pizza lover and a gaming enthusiast? The Pizza Edition Games is the ultimate destination where the love for pizza meets the excitement of gaming! Our collection of fun, pizza-themed games offers players an engaging and mouthwatering experience.
 
-## <a href="https://classroom-6x-cool.gitlab.io/">👉 Play The Pizza Edition Games 👈</a>
+## <a href="https://classroom-6x-cool.gitlab.io/">👉 Play The Pizza Edition Unblocked Games 👈</a>
 
 ![the pizza edition unblocked games](https://github.com/user-attachments/assets/4c56d3e0-b5f2-485d-a86f-f3d027b5d92d)
 
